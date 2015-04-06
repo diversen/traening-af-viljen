@@ -1,4 +1,6 @@
-# Indledning - Behovet for at træne viljen
+# Træning af Viljen
+
+## Indledning - Behovet for at træne viljen
 
 Den brede kløft mellem de ydre og de indre kræfter i det moderne menneske er den vigtigste og mest dybtgående årsag til individuelle og kollektive onder, som hindrer fremskridt og endog truer fremtiden for vores civilisation.
 
@@ -52,7 +54,7 @@ I det sidstnævnte tilfælde er viljen sjældent "ren", da vores indsats ikke ku
 
 Det er godt at indse den fulde betydning og den enorme værdi, som opdagelsen af vilje kan have. Uanset om opdagelsen sker spontant eller gennem bevidst handling, i en krise eller i stille indre erindring, udgør den en vigtig og afgørende begivenhed i vort liv. Viljen er den centrale kraft i vores individualitet, den inderste essens af os selv; derfor betyder opdagelsen af viljen ofte opdagelsen af vort sande væsen.
 
-# Den stærke vilje
+## Den stærke vilje
 
 Mange mennesker vil gerne have en stærk vilje, men få har determinering til at erhverve den. De fleste mennesker er bevidst eller ubevidst afskrækket af den indsats og vedholdenhed, som det indebærer. Men dette er næppe et rimeligt argument. Enhver, der virkelig ønsker at beherske et fremmedsprog eller at spille et musikinstrument, er villig til, at afsætte al den tid, energi og omkostninger, som er nødvendigt for at udføre træningen. Hvorfor så ikke gøre det samme for at udvikle viljen? Det er ikke logisk at forvente, at styrkelsen af viljen kan opnås uden den vedholdenhed og den indsats, som tilsvarende er nødvendig for udviklingen af enhver anden evne, hvad enten denne er psykisk eller fysisk.
 
@@ -64,7 +66,7 @@ Dyrkningen af viljen er i en henseende lettere end at dyrke alle andre evner, fo
 
 Nu, uden yderligere skriverier, vil vi undersøge de bedste praktiske metoder til at udvikle viljestyrke.
 
-# Forberedelse
+## Forberedelse
 
 For at sikre succes er det af afgørende betydning, at en ordentlig forberedelse gøres for at skabe den oprindelige trang og drivkraft; denne forberedelse bør vække et livligt brændende og endda passioneret ønske om at udvikle viljen, der fører til fast beslutning om at gøre alt, hvad der er nødvendigt for at nå dette mål.
 
@@ -84,7 +86,7 @@ Gennem den bevidste vækkelse af viljen føler vi os berigede og mere virkelige.
 
 Denne indre flamme blegner og dør ud, hvis den overlades til sig selv - eller måske afgiver den kun korte lysglimt - og derfor skal den ihærdigt næres for at den kan skinne klart og levende. Den nyligt vækkede vil nemt bliver overmandet af tusind ideer og forestillinger, der ødelægges ved at agitere begær og følelser. Det er derfor nødvendigt at beskytte, udøve og dyrke viljen. Det kan opnås gennem en systematisk uddannelse, der kan kaldes "motion af viljen".
 
-# Motion af viljen
+## Motion af viljen
 
 Grundlaget for fremgangsmåden er enkel. Hvert organ i vores krop og hver eneste funktion kan udvikles ved øvelse. Muskler bliver stærkere ved en serie af sammentrækninger. På samme måde vil vores vilje vokse ved at "ville". For at styrke en specifik muskel eller en gruppe af muskler, fx omkring et svagt led, findes der øvelser arrangeret på en sådan måde, at de sætter det svage led i kroppen i bevægelse. På en lignende måde med blik for at styrke viljen, er det bedst at udøve træningen uafhængigt af enhver anden psykologisk funktion. Dette kan opnås ved at udføre bevidste handlinger, som ikke har andet formål end uddannelse af viljen. Anvendelsen af sådanne tilsyneladende "nytteløse øvelser" er blevet stærkt anbefalet af den store psykolog William James med disse ord:
 
@@ -120,7 +122,7 @@ Lignende øvelser kan opfindes ad libitum. Det vigtige er ikke denne eller hin �
 
 Det er godt at konkurrere med sig selv; med andre ord, at påtage sig en "sportslig attitude" i den bedste forståelse af ordet.
 
-# Øvelse af viljen i dagligdagen
+## Øvelse af viljen i dagligdagen
 
 Hverdagen med dens opgaver og erhverv præsenterer os for utallige muligheder for at øve vor vilje. De fleste af vores aktiviteter kan være nyttige, fordi vi igennem udførelse af disse, gennem vores indre holdning, ligeledes udfører konkrete øvelser af viljen. For eksempel kan den blotte opvågning på et bestemt tidspunkt være en sådan øvelse: Fx med det formål at stå op ti eller femten minutter tidligere end normalt. At få klædt på om morgenen kan anvendes som en sådan mulighed, hvis vi kan udrette de forskellige bevægelser med opmærksomhed og præcision; hurtigt men ikke skyndsomt. Her er en dyrebar evne at udvikle i det daglige liv: At lære at "skynde sig langsomt". Det moderne liv med dets stress og belastning tenderer til at skabe travle vaner, selv når lejligheden ikke kræver det.
 
@@ -136,13 +138,13 @@ Under disse hvile perioder, da vil et par fysiske øvelser eller afslapning ved 
 
 En god øvelse er at standse op på et fast tidspunkt - resolut afbryde ens læsning eller afbryde en interessant samtale. Det er svært, især i begyndelsen, at gøre alle disse øvelser godt, og at forsøge dem alle på én gang ville let føre til modløshed. Derfor er det tilrådeligt at begynde med et par af disse øvelser fordelt over dagen: Og når der er opnået succes med disse, så forsøger man at øge deres antal, variation og skiftes imellem dem. Øvelserne bør altid udføres med glæde og interesse.  Mærk succes og fiasko, foretag optegnelser og forsøg at udføre øvelserne i en konkurrencepræget sportslig attitude. Derved undgås faren for at gøre livet for stift og mekanisk, og vi gør ting interessante og farverige, som ellers ville være kedelige pligter. Ligeledes vil alle, som vi er forbundet med, blive vores samarbejdspartnere (uden at de ved af det). Fx vil en dogmatisk overordnet eller en krævende partner blive den mentale bare, som vores vilje - viljen til de rette menneskelige relationer - udvikler sin kraft og duelighed ved. Forsinkelse i at blive serveret et godt måltid mad giver os blot mulighed for at udøve tålmodighed, sindsro eller chancen for at læse nogle sider i en god bog. Snakkesalige venner eller tidsrøvere giver os mulighed for at styre vores tale; de lærer os høfligt kunsten at afvise deltagelse i unødvendige samtaler. At være i stand til at sige "nej" er en vanskelig, men meget nyttig disciplin.
 
-# Fysiske øvelser til træning af viljen
+## Fysiske øvelser til træning af viljen
 
 Disse udgør meget effektive teknikker, når de udøves med den specifikke intention og det klare formål at udvikle viljen; som den franske forfatter Gillet har udtrykt det: "... gymnastik er viljens grundskole ... og tjener som en model for sindet". I virkeligheden er enhver fysisk bevægelse en viljes-handling, en kommando der gives til kroppen, og den bevidste gentagelse af sådanne handlinger - med opmærksomhed, kraft og udholdenhed - er motion, og motion styrker viljen. Organiske fornemmelser bliver vakt: Bevidstheden om fysisk bevægelse, en hurtigere blodcirkulation, en følelse af varme og smidighed i lemmerne og deres velvillige lydighed; alt dette producerer en følelse af moralsk styrke, af beslutning og beherskelse, der løfter fornemmelsen af vilje og udvikler energi. Men, gentager vi, for at uddrage den største fordel, er det nødvendigt, at øvelserne udføres udelukkende med henblik på - eller i hvert fald med det hovedformål - at træne viljen.
 
 Sådanne øvelser skal udføres med præcision og med opmærksomhed. De må ikke være for voldsomme eller for trættende; hver enkelt bevægelse eller gruppe af bevægelser skal udføres med livlighed og beslutsomhed. Øvelser eller sport, som er fordelagtige til dette formål, er ikke af en voldelig eller ophidsende natur, men snarere dem der kræver udholdenhed, ro, smidighed og mod; øvelser der tillader afbrydelse samt variation af bevægelserne. Mange udendørs sportsgrene - som golf, tennis, skøjteløb, gåture og klatring - er særligt velegnet til træning af viljen; men hvor disse ikke er mulige, kan passende udvalgte fysiske øvelser altid udføres i et værelse i privatlivets fred.
 
-# Den stærke viljes karaktertræk
+## Den stærke viljes karaktertræk
 
 Disse kan opsummeres som følgende:
 
@@ -164,7 +166,7 @@ Det er indlysende, at vi skal kende den psykologiske verden, hvor viljen fungere
 
 Da det ikke er nødvendigt for føreren af en bil at forstå de vanskelige teorier bag dens avancerede mekanik, så er det heller ikke nødvendigt for den, der ønsker at opnå selvkontrol at kende den inderste natur af de psykologiske kræfter eller at være en avanceret kender af filosofi. Det er nok for ham at være bekendt med de vigtigste fakta og love for psykologi, som kan tjene hans praktiske formål.
 
-# De vigtigste kendsgerninger og love om det psykologiske liv
+## De vigtigste kendsgerninger og love om det psykologiske liv
 
 De elementer, der udgør vores inderste væsen, kan groft inddeles i: (1) impuls; (2) følelser; (3) viden. Den første klasse omfatter alle basale drifter, tendenser samt viljen; til den anden klasse hører følelsesmæssige tilstande og følelser af enhver art; den tredje klasse omfatter opfattelsen af syn, hørelse, etc. og alle mentale billeder, meninger, koncepter og ideer.
 
@@ -248,7 +250,7 @@ Dette er "viljen til det gode", og den er forskellig fra "god vilje". I "god vil
 
 Metoderne til udvikling af "viljen til det gode" adskiller sig ikke fra dem, der allerede er nævnt. Metodiske øvelser; meditativ refleksion og selvsuggestion; transformation og sublimering af de psykologiske energier, etc. Forskellen ligger i sigte og formål og i dens anvendelsesområder.
 
-# Forholdet mellem vores vilje og andres vilje
+## Forholdet mellem vores vilje og andres vilje
 
 De grundlæggende hindringer, de store fjender imod både "viljen til det gode"  og "god vilje", er selvoptagethed og egoisme. Selvoptagethed kan sameksistere med oprigtig tilknytning til andre og med selvopofrende handlinger; det er den generelle tendens til at henvise alt til sig selv, til at overveje alt ud fra ens egen personligheds vinkel, kun at koncentrere sig om sine egne idéer og på ens egne følelsesmæssige reaktioner. Den selv-centrerede enkelte kan oprigtigt ønske at gøre godt, men kun på sin egen måde; derfor er han sandsynligvis anmassende eller fanatisk. Han ønsker at konvertere alle til sine overbevisninger, pålægge andre sine metoder, og ser kun frelse i de midler, som han tilbyder. En sådan holdning er en grundlæggende fejl overordnet set; et sandt psykologisk "ptolemæiske udsyn" [alt kredser om jorden]. Men med de bedste intentioner kan man faktisk gøre skade; ligesom den venlige abe, der så se en fisk i vandet, og derpå skyndte sig at redde den fra at drukne ved at bære den op i et træ.
 
@@ -282,7 +284,7 @@ En sådan empati er gjort mulig grundet den væsentlige ensartethed i den mennes
 
 Denne øvelse hjælper os ikke kun til at få en sand forståelse af andre; den skænker os desuden en større medmenneskelighed. Den giver os et indblik i det magiske og det mystiske ved den menneskelige natur, hvor så mange og så modsatrettede elementer findes side om side; vi anerkender, at kimen til godhed og mulighederne for tilgivelse findes i kriminelle; vi erkender de svagheder, mangler, og selv lave drifter, som findes i selv meget store mænd. Vi bliver opmærksomme på de konflikter, der foregår i begge disse ekstreme menneskelige typer og i alle typer imellem dem; vi ser de deraf følgende lidelser. Således kan vi opgive vores almindelige ubarmhjertige tendens til at kaste dom over andre, og i stedet vække en forståelse af bred medfølelse, fællesskab og solidaritet mellem mennesker. Og naturligvis vækker dette i os "viljen til det gode".
 
-# Forholdet mellem vores vilje og den universelle vilje
+## Forholdet mellem vores vilje og den universelle vilje
 
 1. Erkendelse af vores sande plads i universet
 
