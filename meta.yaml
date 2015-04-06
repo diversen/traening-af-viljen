@@ -22,7 +22,7 @@ format-arguments:
     pdf: -V documentclass=report --template=templates/default.latex -S --toc --chapters -V fontsize=12pt  -V lang=danish
     epub: -S --toc --toc-depth=1
     mobi: ok
-    html: -s -S
+    html: -s -S --toc
     #html-chunked: -s -S
 # ignore files
 ignore-files:
