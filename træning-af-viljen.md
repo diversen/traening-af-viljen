@@ -286,7 +286,7 @@ En sådan empati er gjort mulig grundet den væsentlige ensartethed i den mennes
 
 Denne øvelse hjælper os ikke kun til at få en sand forståelse af andre; den skænker os desuden en større medmenneskelighed. Den giver os et indblik i det magiske og det mystiske ved den menneskelige natur, hvor så mange og så modsatrettede elementer findes side om side; vi anerkender, at kimen til godhed og mulighederne for tilgivelse findes i kriminelle; vi erkender de svagheder, mangler, og selv lave drifter, som findes i selv meget store mænd. Vi bliver opmærksomme på de konflikter, der foregår i begge disse ekstreme menneskelige typer og i alle typer imellem dem; vi ser de deraf følgende lidelser. Således kan vi opgive vores almindelige ubarmhjertige tendens til at kaste dom over andre, og i stedet vække en forståelse af bred medfølelse, fællesskab og solidaritet mellem mennesker. Og naturligvis vækker dette i os "viljen til det gode".
 
-## Forholdet mellem vores vilje og den universelle vilje
+# Forholdet mellem vores vilje og den universelle vilje
 
 1. Erkendelse af vores sande plads i universet
 
